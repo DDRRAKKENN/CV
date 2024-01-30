@@ -1,2 +1,2 @@
-# CV
-curriculum vitae Spanish/ english
+# Curriculum vitae
+
